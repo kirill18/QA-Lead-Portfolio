@@ -46,8 +46,8 @@ QA-Portfolio/
 ## 🔹 Контакты
 
 - Email: kirilllityuchii@gmail.com  
-- LinkedIn: [linkedin.com/in/kirilllityuchii](https://www.linkedin.com/in/kirilllityuchii)  
-- Telegram: [@kirilllityuchii](https://t.me/kirilllityuchii)  
+- LinkedIn: [linkedin.com/in/kirill-litiuchii](https://www.linkedin.com/in/kirill-litiuchii-027a4723b/)  
+- Telegram: [@s0n1c13](https://t.me/s0n1c13)  
 
 ---
 
